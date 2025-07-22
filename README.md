@@ -1,4 +1,4 @@
-# 小蜜蜂机场 - 官网网站发布页
+# 小蜜蜂机场 - 官方网站发布页
 
 [小蜜蜂机场（xmfwww）](https://inva.xmfaff.cc/register?aff=Gsv93MEy)，海外团队运营，全 IEPL 专线机场，原生 IP 节点，全部节点解锁 ChatGPT、Netflix、TikTok 等。包含部分热门小众地域节点。
 
